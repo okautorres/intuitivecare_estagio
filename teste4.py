@@ -1,0 +1,1 @@
+# Infelizmente não possuo conhecimento para realizar esta etapa, entretanto estou disposto a ser ensinado para que consiga realizar todas as tarefas em que hoje não consigo. Agradeço a oportunidade, estou a disposição e em busca de conhecimentos. Espero ter uma oportunidade na empresa.
